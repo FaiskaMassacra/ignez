@@ -1,1 +1,1 @@
-# ignez
+Olá me chamao Pedro, tenho 18 anos, estudo no colegio Prof. Joaquim Da Silva Mafra, moro em Guaratuba no litoral do Paraná. Gosto de desenhar, ouvir musica e assistir animes, meu sonho e ser designer. estou em um grupo de musica chamado hi2up e sou um do responsaveis por fazer as artes de capa.
